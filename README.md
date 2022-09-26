@@ -1,2 +1,2 @@
 # HitMarker
-https://cdn.discordapp.com/attachments/779464462255521792/924601762835476500/HitMarker.gif
+![](https://media.tenor.com/images/15a5829b71561434d8039f35a05be6e8/tenor.gif)
